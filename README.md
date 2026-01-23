@@ -1,1 +1,1 @@
-kristinmorgan.com coming Jan 23, 2026
+kristinmorgan.com coming Jan 2026
